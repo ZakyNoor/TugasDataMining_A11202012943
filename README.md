@@ -1,0 +1,1 @@
+# TugasDataMining_A11202012943
